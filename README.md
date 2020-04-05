@@ -88,6 +88,9 @@ After sprinkling a thin layer of biscuit, put one more spoon of custard and plac
 
 Banana magnolia are ready, Bon appetit!
 
-![kalori](https://hizliresim.com/ZeyplO.png) 
+![magcal](https://user-images.githubusercontent.com/62601638/78505451-45dd4300-777c-11ea-9de0-063ac60b434b.png)
 
-![resim](https://hizliresim.com/GTM1XF.png) 
+![IMG-20191108-WA0026](https://user-images.githubusercontent.com/62601638/78505428-1b8b8580-777c-11ea-8783-c69099e79da3.jpg)
+
+# VÜCUT KİTLE ENDEKSİ
+![bmi](https://user-images.githubusercontent.com/62601638/78505930-46c3a400-777f-11ea-9aa0-08fa69a91d01.png)
