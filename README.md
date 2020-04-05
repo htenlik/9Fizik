@@ -87,3 +87,7 @@ Pour 1 spoon of custard into bowls, then place banana slices around it.
 After sprinkling a thin layer of biscuit, put one more spoon of custard and place one more thin layer of biscuit and put one more spoon of custard.
 
 Banana magnolia are ready, Bon appetit!
+
+![kalori](https://hizliresim.com/ZeyplO.png) 
+
+![resim](https://hizliresim.com/GTM1XF.png) 
